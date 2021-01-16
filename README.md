@@ -17,7 +17,7 @@ I am curious learner.😉😉
 
 ### 📫 How to reach me?
 
-- [LinkedIn](www.linkedin.com/in/vishal-bhosale-541a19125) 
+- [LinkedIn](https://www.linkedin.com/in/vishal-bhosale-541a19125) 
 - [My personal website](http://vishalbhosale5.wordpress.com) 
 
 
